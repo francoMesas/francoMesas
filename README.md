@@ -2,7 +2,7 @@
 ![main-qimg-18f21e9f9a86eef71b6313894122be7c](https://github.com/francoMesas/francoMesas/assets/111539593/21293fde-0e12-491b-a216-739a3a329d8c)
 
 
-**Mi nombre es Franco Mesas y soy estudiante de la tecnicatura en programacion de la UTN regional San Rafael Argentina**
+**Mi nombre es Diego F. Mesas y soy estudiante de la tecnicatura en programacion de la UTN regional San Rafael Argentina**
 ![25mayo-bandera-de-argentina](https://github.com/francoMesas/francoMesas/assets/111539593/3ca34f91-1934-4439-b4ed-765ac78c42e3)
 
 
